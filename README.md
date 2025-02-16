@@ -1,4 +1,4 @@
-Sprunki 1996: A Racing and Music Carnival Through the 90s
+<h1>Sprunki 1996: A Racing and Music Carnival Through the 90s</h1>h1>
 
 <p dir="auto"> Click to play，1st Version: <a href="https://sprunki1996.com/" title="Sprunki 1996" rel="nofollow">Sprunki 1996</a></p>
 <p dir="auto"> Click to play，1st Version: <a href="https://sprunki1996.com/" title="Sprunki 1996" rel="nofollow">Sprunki 1996</a></p>
